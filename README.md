@@ -1,6 +1,6 @@
 # JustMike
 
-Hey there! I'm JustMike, my irl name is [REDACTED]
+Hey there! I'm JustMike, my irl name is Faruk
 
 ## A bit more about me
 
