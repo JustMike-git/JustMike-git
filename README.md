@@ -1,6 +1,6 @@
-# JustMike
+# Fruk
 
-Hey there! I'm JustMike, my irl name is Faruk
+Hey there! I'm Fruk, my irl name is Faruk. Previously known as JustMike-git/JustMike
 
 ## A bit more about me
 
